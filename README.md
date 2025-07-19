@@ -6,6 +6,6 @@
 ![](https://www.koeitecmoeurope.com/aot2/finalbattle/img/top/character-img.png)
 
 
- ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ [strawpage](https://romuluswolf.straw.page/) 
+ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ [strawpage](https://romuluswolf.straw.page/) read for info (๑ᵔ⤙ᵔ๑)
 
 
