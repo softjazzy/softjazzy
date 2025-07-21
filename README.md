@@ -9,9 +9,5 @@
  ㅤ ㅤ ㅤ ㅤ   ㅤ ㅤ ㅤㅤ  [strawpage](https://romuluswolf.straw.page/) read for info (๑ᵔ⤙ᵔ๑)
  
 
-  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ![](https://64.media.tumblr.com/54036728b5d528163ab429a09de48f01/992b39b6ab3235eb-47/s100x200/f864d3d0848d565b5296396f09d0dc50b60ab741.webp)
-
- ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ 
-  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ 
 
 
