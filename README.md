@@ -3,7 +3,7 @@
  ㅤ ㅤ ㅤ ㅤ ㅤ♫ ㅤ ㅤ ㅤ. 
  
 
-![](https://www.koeitecmoeurope.com/aot2/finalbattle/img/top/character-img.png)
+![](https://static.wikia.nocookie.net/alien-stage/images/a/a3/Mizi-icon.png/revision/latest/scale-to-width-down/250?cb=20240427144100)
 
 
  ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ  ㅤ ㅤ  ㅤ [strawpage](https://romuluswolf.straw.page/) read for info (๑ᵔ⤙ᵔ๑)
