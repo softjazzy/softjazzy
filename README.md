@@ -8,4 +8,6 @@
 
  ㅤ ㅤ ㅤ ㅤ   ㅤ ㅤ ㅤㅤ  [strawpage](https://romuluswolf.straw.page/) read for info (๑ᵔ⤙ᵔ๑)
 
+  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ + [carrd](https://arrlertt.carrd.co/)
+
 
