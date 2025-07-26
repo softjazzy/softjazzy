@@ -3,7 +3,7 @@
  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ♫ ㅤ ㅤ ㅤ. 
  
 
- ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤㅤ![](https://static.wikia.nocookie.net/alien-stage/images/a/a3/Mizi-icon.png/revision/latest/scale-to-width-down/250?cb=20240427144100)
+![](https://i.pinimg.com/736x/7c/66/b1/7c66b12fa9013bd01fd26dc024a30860.jpg)
 
 
  ㅤ ㅤ ㅤ ㅤ   ㅤ ㅤ ㅤㅤ  [strawpage](https://romuluswolf.straw.page/) read for info (๑ᵔ⤙ᵔ๑)
