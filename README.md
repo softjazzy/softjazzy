@@ -1,13 +1,6 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=wjdes5kajmt1gqhbzctuzbgid&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=true&bar_color=53b14f&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 
-
- ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  
- 
-
-![](https://64.media.tumblr.com/8b5c79a4d01c8664a047240e7c766067/19e56d34ca10340c-4f/s1280x1920/2cfa89749eddace0e3acae24bf9b46d829a1e7a4.jpg)
-
-
+![](https://64.media.tumblr.com/10c19ac4b2f9b411ec97becbd1c2e89e/19e56d34ca10340c-dd/s1280x1920/c77564c85e098a9567e78c0e076e5ee59c6109d5.jpg)
  ㅤ ㅤ ㅤ ㅤ   ㅤ ㅤ ㅤ ㅤ ㅤ   ㅤ ㅤㅤ   (๑ᵔ⤙ᵔ๑)
-
 ㅤㅤ 
  
 
